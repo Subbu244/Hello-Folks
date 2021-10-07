@@ -1,2 +1,3 @@
 # Hello-Folks
-This repository is just for me and my friends from state of survival game. Its a warehouse or club where we all meet to drink, chat and mess etc
+I want to add a bit more info to my buddies ladylit meg jo and others about this.
+Im editing this cause of them
